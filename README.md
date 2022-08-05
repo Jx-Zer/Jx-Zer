@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer...
 - 🌱 I’m currently learning Java..
 - 💞️ I’m looking for a friend....
-- 📫 How to reach me Tex me..jxjanu@gmail.com
+- 📫 How to reach me Tex me.vhcbbgfbcbcn856
 
 <!---
 Jx-Zer/Jx-Zer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
